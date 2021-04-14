@@ -5,3 +5,5 @@ I am committed to working on my sleep schedule so I can get work done during the
 I am committed to using outside sources to practice the concepts that we are learning.
 
 Shoutout to my son Aiden, who is excited that I am going back to school.  Again.
+
+I haven't been feeling well today.  Depressed and anxious, but I am trying to be professional in spite of what is going on in my head.
